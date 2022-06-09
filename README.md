@@ -35,7 +35,7 @@ add me on discord if you want to buy thé cheat to use it or to buy thé source 
 ```
 ***
 ### 📌・ Showcase :
-* `![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257881873363034/IMG_20220415_011438.jpg)`
+* ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257881873363034/IMG_20220415_011438.jpg)
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257882129227826/IMG_20220415_011346.jpg)
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257882439581717/IMG_20220415_011324.jpg)
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257882938736650/IMG_20220415_011217.jpg)
