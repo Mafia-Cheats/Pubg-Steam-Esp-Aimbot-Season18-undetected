@@ -3,7 +3,7 @@
 add me on discord if you want to buy thé cheat to use it or to buy thé source code 
 ```
 ```sh-session
---> Madris#1575 or https://discord.gg/zmGTttFbgu
+--> Madris#1575 or https://discord.gg/4yD44vUV8M
 ```
 
 ***
@@ -19,7 +19,7 @@ add me on discord if you want to buy thé cheat to use it or to buy thé source 
     </a>
 </p>
 
-### 📌・ DISCORD : [MAFIA CHEATS](https://discord.gg/zmGTttFbgu)  
+### 📌・ DISCORD : [MAFIA CHEATS](https://discord.gg/4yD44vUV8M)  
 
 * `👋 SELL CHEATING PRIVATE / SPOOFER / SOURCE CODE / ETC `
 * `✔️ UPDATE FREE & LIFETIME & UNDETECTED & BYPASS DRIVER , INJECTOR `
