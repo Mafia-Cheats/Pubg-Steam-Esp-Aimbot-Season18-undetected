@@ -1,4 +1,4 @@
-### Pubg Steam Internal Cheat undetected.
+### Pubg Steam Internal Cheat undetected Last Update 18.2
 ```sh-session
 add me on discord if you want to buy thé cheat to use it or to buy thé source code 
 ```
